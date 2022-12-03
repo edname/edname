@@ -1,1 +1,1 @@
-Nothing can create familiarity more quickly than good ol' repeated exposure and experimentation.
+Nothing can create familiarity more than good ol' repeated exposure and experimentation.
